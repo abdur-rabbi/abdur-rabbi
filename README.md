@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abdur-rabbi
+- 👋 Hi, I’m Abdur-Rabbi-Khan
 - 👀 I’m interested in learning.
 - 🌱 I’m currently learning, how to create a better world.
 - 💞️ I’m looking to collaborate on some good men.
